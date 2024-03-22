@@ -1,1 +1,1 @@
-ALL HAIL MUHAMMAD
+Sukuna would've lost without Mahoraga
